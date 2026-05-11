@@ -1,4 +1,4 @@
-
+Enhance Nike Training Club for macOS with updated Nike Training Club for macOS Helper | social-sharing + nutrition-database, the #1 helper. Includes social-sharing and
 
 
 
